@@ -1,3 +1,5 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+Hi guys, my name is Kenzhe
+
+Let me introduce myself to you. I am 26 years old, 180 cm height and weight is 80 kg. 
